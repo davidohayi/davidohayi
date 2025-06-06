@@ -1,4 +1,4 @@
--# 👋 Hi there, I’m David Ohayi (@davidohayi)
+👋 Hi there, I’m David Ohayi (@davidohayi)
 
 🎨 I’m a Graphics Designer and Digital Creative with experience in visual branding, social media design, and digital marketing.
 
